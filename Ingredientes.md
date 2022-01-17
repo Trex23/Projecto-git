@@ -1,0 +1,1 @@
+1 taza de aceite, 5 zanaohrias ralladas, 2 tazas de harina, 1 taza y media de azúcar, 3 huevos, 1 cucharadita y media de canela, 1 cucharadita de bicarbonato, 1 cucharadita de vainilla, Media cucharadita de sal, Un cuarto de cucharadita de nuez moscada
